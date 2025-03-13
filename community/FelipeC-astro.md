@@ -1,0 +1,1 @@
+Meu nome é Felipe, e estou terminando meu mestrado em Astrofísica. Enquanto isso, estou estudando Ciência de Dados para poder trabalhar nessa área, onde espero também poder aplicar os conhecimentos técnicos que adquiri durante o mestrado.
